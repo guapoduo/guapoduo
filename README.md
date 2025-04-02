@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @guapoduo
+- 👋 Hi, I’m 
 - 👀 I’m interested in RPG,books,QSMP..
   
 <!---
